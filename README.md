@@ -18,3 +18,4 @@ Created by me
 
 
 #### If you have a problem, check issues.
+⚠️ Don't spam, your account can be ban or disabled easily ⚠️
